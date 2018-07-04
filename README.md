@@ -1,1 +1,1 @@
-Burası benim sayfam
+https://koseeYunus.github.io
